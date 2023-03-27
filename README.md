@@ -1,0 +1,1 @@
+# Detteccao_e_classificacao_LIBRAS
